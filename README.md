@@ -7,3 +7,4 @@ Going for Islamiah tomorrow?
 Make Sunday brunch on Saturday night
 Do the laundry
 Take the trash out
+Make a Sunday todo list on Saturday night.
