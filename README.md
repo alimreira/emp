@@ -1,8 +1,6 @@
 # emp
-AddBranch
 First commit
 It's evening
+Good evening Abuja
 
-First commit
-It's evening
-master
+
