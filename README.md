@@ -13,5 +13,5 @@ Sunday morning activities:
 Breakfast
 Cleaning
 Laundary
-
 Breakfast was pancakes and scrabbled eggs
+I added some suagges as well.
