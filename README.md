@@ -13,3 +13,4 @@ Sunday morning activities:
 Breakfast
 Cleaning
 Laundary
+I had a dense calory breakfast
