@@ -13,4 +13,8 @@ Sunday morning activities:
 Breakfast
 Cleaning
 Laundary
+
 I had a dense calory breakfast
+
+Breakfast was pancakes and scrabbled eggs
+I added some suagges as well.
